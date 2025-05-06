@@ -1,2 +1,2 @@
 # disclosure.earth
-This is the new static site for Disclosure.earth. 
+Welcome to Disclosure.earth. This site is about disclosure of the existence of alien life and paranormal experiences and events. I do my best to research as much as possible before posting anything.  The written style is autoethnographic, meaning it draws heavily from my actual experiences making it both introspective and outwardly analytical. All material presented is subject to copyright and therefore may not be reproduced without permission and/or attribution, although it may be linked to. I hope that you enjoy the writing.
